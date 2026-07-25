@@ -69,6 +69,8 @@ https://mega.nz/file/uSggCAiZ#9oXL9TfFDF0YezrA4IE8ExYDfunYBiJcTxFZUg-G_Ok
 https://mega.nz/file/GCBHDIhI#AKCRncVht8AAWYVSNNjECMVoy1_pT91dApF-Xpwq8RA
 https://mega.nz/file/WKx0wbpR#ucfqbN75fwslgnnzaLvuzp1nFnKaCfM3J5SIc4ycVTQ
 
+en jp full 
+https://drive.google.com/file/d/1n6N_ZP3rHNqHIeF3tYRFz7lZfoqPg0Ds/view?usp=drivesdk
 
 isao123_sss
 isao123_sss1 to isao123_sss13
