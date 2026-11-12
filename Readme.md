@@ -50,4 +50,16 @@ https://mega.nz/file/56gHwTQL#Jzb_rIPHwLxEVJ6WBLUERSZBCg9o0czINZN98sSci5I
 https://mega.nz/file/iHwDjBAZ#j9s_ndS3Ui5NaHME_3-emCFkmFoKw2rhOESUv-n9QKA
 https://mega.nz/file/N2l1gTaC#G_EWlKobSzDGSSp6WEPMzTcwVUc1LSOzMIBNOAEFVvk
 ----
-
+all in one in zapq
+https://drive.google.com/file/d/1EFhkT-KuZNXkzJFFAOtiA-oa0-ipR888/view?usp=sharing
+https://drive.google.com/file/d/1D-b--QswndFscWTKSXPokIrYLp9R-Bq3/view?usp=sharing
+https://drive.google.com/file/d/1ffLY-263BVUvi6d-1aBcj3n8BQCIdJIV/view?usp=sharing
+https://drive.google.com/file/d/1Sg_Yv09RPYqcEt5E5rn7o6ei9FM0vsjz/view?usp=sharing
+https://drive.google.com/file/d/1nSuJkScuQq82f6IfJoK9jXqeXYVe8unr/view?usp=sharing
+-----
+https://mega.nz/file/8fBSXJSK#MlMWGcQxbDi1coilqbLe28ioAvC915HpgTW-nr0yGhU
+https://mega.nz/file/ykpg3CwY#bBkZmHVqEXB26jxHTTWwSvx3PiErhhnW98byM3tFOOs
+https://mega.nz/file/AnBSAQQT#yNXOn2QUbc5Z153HKPbgl3I1bhTIf3wTMhfMkAKPMPE
+https://mega.nz/file/SOgWCDKL#HhMcEPbh7lZV9L9OH6VIrwqny0EtcNhPu2Py7hpqR-E
+https://mega.nz/file/QrsXVJ4a#Pv64XqDJkXfIeCg10-tCi9un3qnF1W5FRIPj1vbHS2o
+-----
